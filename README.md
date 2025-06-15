@@ -1,2 +1,3 @@
 # Iptv-xtreme-code-for-palestine we will renew right now
-just wait
+Username:Ugeen_VIP80qwSt
+Password:RYHDdD
